@@ -1,1 +1,2 @@
-LC70_Almutairi_Team_And_Namos_Team.zip
+https://modsfire.com/JgRjZoiR2c9a26w
+https://modsfire.com/t9Fn3m6KOfD1G68
