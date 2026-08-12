@@ -3,5 +3,5 @@ https://www.dropbox.com/scl/fi/q4dya9mbsuzqioq9tmdkm/BdRaN_cr24-2.zip?rlkey=hkw5
       شاص بدران
 https://www.dropbox.com/scl/fi/acd5h4jg27gre1fwg0901/Land_Cruiser_LC70_70y.zip?rlkey=cq6bkr02zhiqijkkbbh042ail&st=34fs2neo&dl=1
 شاص خويلد
-https://modsfire.com/7ApJyoebBHKqRYo
+
 ماب sonk
