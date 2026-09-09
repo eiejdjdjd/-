@@ -5,5 +5,5 @@ https://www.dropbox.com/scl/fi/acd5h4jg27gre1fwg0901/Land_Cruiser_LC70_70y.zip?r
 https://modsfire.com/N0wXl1g0v9XoisP
 ماب كراش
 https://modsfire.com/0PmtilVuyg31mP5
-https://modsfire.com/ExNLpXDNh35XK5r
-https://modsfire.com/jAX66kkLJEBiYHM
+https://modsfire.com/vtc34hRg01w72c6
+
