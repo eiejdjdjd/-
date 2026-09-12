@@ -9,5 +9,4 @@ https://modsfire.com/0PmtilVuyg31mP5
 https://modsfire.com/90d3006P50qB1Ra
 👇🏻ذي ماب الرياض 
 https://modsfire.com/T1Cz2atKSqG6BBC
-👇🏻 الدياري
-https://www.dropbox.com/scl/fi/gshi21vvm75tlrmhm5sd6/Dayiri-Al-Tishalih-Al-Qassim.zip?rlkey=uadv0ju0oo0aci6o3t6ybfhiq&st=pfdsz9ll&dl=1
+👇
