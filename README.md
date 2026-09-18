@@ -15,3 +15,6 @@ https://modsfire.com/x0pFzyU8nlU5vk9
 https://modsfire.com/4WIhDp0hl6H8fA0
 محول شاص
 https://modsfire.com/ljd0OL4hW8a5PPn
+
+مكينه 2👇🏻☝🏻
+https://modsfire.com/0p96lP1zjbeKFK4 
